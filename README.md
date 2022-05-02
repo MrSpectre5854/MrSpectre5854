@@ -1,5 +1,4 @@
-- Discord:
-MrSpectre#5854
+Other information:
 
 - Nintendo 3DS (1):
 3239-9989-2566
